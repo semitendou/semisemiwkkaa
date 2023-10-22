@@ -1,2 +1,0 @@
-# semisemiwkkaa
-reading website
